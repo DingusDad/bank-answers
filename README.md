@@ -1,0 +1,1 @@
+This website is a joke I made in a few hours while bored at home.
